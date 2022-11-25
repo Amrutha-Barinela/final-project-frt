@@ -13,6 +13,5 @@ SCREENSHOTS ![save poor pcture](https://user-images.githubusercontent.com/114930
 ![sp 8](https://user-images.githubusercontent.com/114930748/203921232-0380a562-008a-442a-a3ca-c5595b6eda4b.png)
 ![sp 9](https://user-images.githubusercontent.com/114930748/203921278-ec58eb93-507b-4472-8e33-2f2c080c8a3b.png)
 ![sp 10](https://user-images.githubusercontent.com/114930748/203921324-6bf13f88-63e7-40a8-987a-05d9e234f2a5.png)
-
-
+IT IS OUR RESPONSIBILITY TO SAVE POOR. THANK YOU.
 
